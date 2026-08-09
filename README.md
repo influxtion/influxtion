@@ -7,4 +7,6 @@
 
 check out my personal website: https://jayden-shin.vercel.app/
 
-reach out if you're a fellow dev! i love meeting new people. 
+reach out if you're a fellow dev! 
+
+always looking for interesting opportunities
