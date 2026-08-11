@@ -1,4 +1,4 @@
-## 18 year old from toronto interested in politics, startups, and pokemon
+## 18 year old from toronto interested in civ-tech, software engineering, and building!
 
 - spoke at the UN in nyc
 - interned and programmed at a couple places
